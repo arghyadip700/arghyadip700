@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **arghyadipdhara1@gmail.com**
 
-- 📄 My Resume [https://drive.google.com/file/d/1SYSvSpvs863M4zqC-sDAhX2pCgp4rXlS/view?usp=drive_link](https://drive.google.com/file/d/1SYSvSpvs863M4zqC-sDAhX2pCgp4rXlS/view?usp=drive_link)
+- 📄 My Resume [Arghyadip Dhara Resume]([https://drive.google.com/file/d/1SYSvSpvs863M4zqC-sDAhX2pCgp4rXlS/view?usp=drive_link](https://drive.google.com/file/d/18GeWw3s4uv1qfvIKbR8Z-W77K9j9ztcF/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
