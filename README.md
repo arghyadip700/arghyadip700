@@ -8,9 +8,12 @@
 
 - 🌱 I’m currently learning Backend development with **Express.js Node.js, MongoDB**
 
+- 👨‍💻 All of my projects are available at **[My Repositories](https://github.com/arghyadip700?tab=repositories)**
+
 - 📫 How to reach me **arghyadipdhara1@gmail.com**
 
 - 📄 My Resume [https://drive.google.com/file/d/18GeWw3s4uv1qfvIKbR8Z-W77K9j9ztcF/view?usp=drive_link](https://drive.google.com/file/d/18GeWw3s4uv1qfvIKbR8Z-W77K9j9ztcF/view?usp=drive_link)
+- ⚡ Fun fact **I am a massive Football fan ⚽**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
