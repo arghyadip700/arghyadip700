@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **arghyadipdhara1@gmail.com**
 
-- 📄 My Resume [Arghyadip Dhara Resume](https://drive.google.com/file/d/1t38PAjv6RE5dLGbY5EzpmyLebfVdty7P/view?usp=sharing)
+- 📄 My Resume [Arghyadip Dhara Resume](https://drive.google.com/file/d/1jSBIJ-aynw2rNTEU-uo6HN61jkltdxhS/view?usp=sharing)
 - ⚡ Fun fact **I am a massive Football fan ⚽**
 
 <h3 align="left">Connect with me:</h3>
